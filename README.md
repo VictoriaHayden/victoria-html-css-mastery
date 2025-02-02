@@ -3,4 +3,4 @@
 
 By Victoria Hayden
 
-The project is due on February 2nd 2025.
+The project is due on February 1rst 2025.
